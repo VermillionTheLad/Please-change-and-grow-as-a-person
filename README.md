@@ -1,2 +1,2 @@
-# Please-change-and-grow-as-a-person
-Random Zip-Bomb I found on internet.
+# DO NOT UNZIP AT ALL COSTS
+This is a random Zip-Bomb I found on internet.
